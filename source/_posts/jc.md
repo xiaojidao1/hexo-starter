@@ -2,7 +2,7 @@
 
 ## nb自建（周润发订阅器）
 
-https://dy.zcxcxx.dns.army/c7de6aaf-9679-4364-89d3-344d216e1c5d?clash或
+https://dy.zcxcxx.dns.army/c7de6aaf-9679-4364-89d3-344d216e1c5d?clash 或
 
 https://liudy.pages.dev/c7de6aaf-9679-4364-89d3-344d216e1c5d?clash
 
